@@ -1,6 +1,6 @@
 # Sprunki Pokemon
 
-Embark on an electrifying adventure with Sprunki Pokemon!  This captivating game from [Spunky Game](https://spunky.games) blends the thrill of Pokemon-inspired battles with the unique Sprunki universe.  Catch, train, and battle your way to the top, becoming the ultimate Sprunki Pokemon Master. Play Sprunki Pokemon Now: [sprunki-pokemon](https://spunky.games/sprunki-pokemon)
+Embark on an electrifying adventure with Sprunki Pokemon!  This captivating game from [Spunky Game](https://spunky.games) blends the thrill of Pokemon-inspired battles with the unique Sprunki universe.  Catch, train, and battle your way to the top, becoming the ultimate Sprunki Pokemon Master. Play Now: [sprunki-pokemon](https://spunky.games/sprunki-pokemon)
 
 ---
 
@@ -50,7 +50,7 @@ Sprunki Pokemon is an exciting game developed by [Spunky Game](https://spunky.ga
 
 ## Frequently Asked Questions (FAQ) <a name="faq"></a>
 
-1. **Q: How can I play Sprunki Pokemon?** A: Play Sprunki Pokemon Now:[sprunki-pokemon](https://spunky.games/sprunki-pokemon)
+1. **Q: How can I play Sprunki Pokemon?** A: Play Now:[sprunki-pokemon](https://spunky.games/sprunki-pokemon)
 2. **Q: How do I catch Sprunki Pokemon?** A: Weaken them in battle and use a Sprunki Ball.
 3. **Q: How do I train my Sprunki Pokemon?** A: Battle other trainers and wild Sprunki Pokemon to gain experience.
 4. **Q: What are type advantages?** A: Certain types of Sprunki Pokemon are stronger or weaker against other types.
@@ -64,4 +64,4 @@ Sprunki Pokemon is an exciting game developed by [Spunky Game](https://spunky.ga
 
 ---
 
-Ready to become a Sprunki Pokemon Master? Play Sprunki Pokemon Now:[sprunki-pokemon](https://spunky.games/sprunki-pokemon)
+Ready to become a Sprunki Pokemon Master? Play Now:[sprunki-pokemon](https://spunky.games/sprunki-pokemon)
